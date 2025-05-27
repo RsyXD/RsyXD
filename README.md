@@ -2,7 +2,7 @@
 
 Selamat datang di dunia penuh misteri dan bug bernama **RsyXD**.
 
-<img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExMW40dGh1Zzl4dW56dmZtcTJnZHF0MHRtbG84anB5NWZtZzAwMW41dSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/rzKSHEMN0lVkc/giphy.gif" width="500"/>
+<img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZmJvNjk1cHk3ZWNnb21sbTk4N2Vxd21vajY0bHVyYTNqN21qNG10cCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/BBNYBoYa5VwtO/giphy.gif" width="900"/>
 
 ## 🤔 Apa ini?
 
