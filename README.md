@@ -1,6 +1,6 @@
 # RsyXD 👾
 
-Selamat datang di dunia penuh misteri dan bug bernama **RsyXD**.
+Selamat datang di dunia penuh misteri dan bug bernama **RsyXD** :P
 
 <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZmJvNjk1cHk3ZWNnb21sbTk4N2Vxd21vajY0bHVyYTNqN21qNG10cCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/BBNYBoYa5VwtO/giphy.gif" width="900"/>
 
