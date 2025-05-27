@@ -2,6 +2,8 @@
 
 Selamat datang di dunia penuh misteri dan bug bernama **RsyXD**.
 
+<img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExMW40dGh1Zzl4dW56dmZtcTJnZHF0MHRtbG84anB5NWZtZzAwMW41dSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/rzKSHEMN0lVkc/giphy.gif" width="500"/>
+
 ## 🤔 Apa ini?
 
 Kami juga tidak yakin. Tapi yang jelas, ini adalah sesuatu. Kadang jalan, kadang enggak. Tapi setidaknya tampilannya keren (kalau kamu tutup mata dulu 3 detik).
